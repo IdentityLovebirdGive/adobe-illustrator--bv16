@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Adobe Illustrator for macOS script with vip Adobe Illustrator for macOS Script | smart objects + real-time preview. Featuring smart objects and real-time preview,
 
 
 
